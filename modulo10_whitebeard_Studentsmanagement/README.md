@@ -1,1 +1,0 @@
-# modulo10_whitebeard_Studentsmanagement
